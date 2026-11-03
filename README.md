@@ -1,1 +1,0 @@
-# chatting-toy-privacy-policy
